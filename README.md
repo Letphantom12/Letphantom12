@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... data structures
 - 💞️ I’m looking to collaborate on ... currently not
 - 📫 How to reach me ... diwyanshshukla8888@gmail.com
-- 😄 Pronouns: ...3d copy
+- 😄 Pronouns: ... he/him
   
 
 <!---
